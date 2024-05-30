@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CourtneyB1
+- 👋 Hi, I’m Courtney Blankenship! Sales Professional located in the heart of Nashville, TN. 
 - 👀 I’m interested in working for GitHub as a top producing Senior Mid-Market Account Executive.
 - 🌱 I’m currently learning the fundamentals of opensource platforms with online resources and getting familiar with GitHub's interface.
 - 💞️ I’m looking to collaborate with teams who are really excited about the vision of the company and also folks that love to win. 
